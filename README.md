@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrGrimmYeet
+- 👀 I’m interested in Programming and playing minecraft
+- 🌱 I’m currently learning Java and Python
+- 📫 How to reach me on my Discord: https://discord.gg/DCCRk9HHxA
